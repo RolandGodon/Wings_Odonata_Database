@@ -15,3 +15,4 @@ Les fossiles de libellules nous offrent une précieuse fenêtre sur le passé lo
 
 #### Pourquoi etudier les fossiles ?
 Les fossiles de libellules nous offrent une précieuse fenêtre sur le passé lointain de notre planète. Ces vestiges fossilisés révèlent que les ancêtres des libellules existent depuis plus de 300 millions d'années, bien avant l'apparition des dinosaures. Les fossiles de libellules ont permis aux scientifiques de mieux comprendre l'évolution de ces insectes aériens, ainsi que les changements environnementaux qui ont façonné leur histoire. Certains fossiles montrent des libellules géantes avec une envergure d'ailes impressionnante, tandis que d'autres révèlent des espèces éteintes qui ont disparu au fil des ères géologiques. Ces précieux indices fossiles nous aident à reconstruire le passé énigmatique et diversifié des libellules sur notre planète.
+
